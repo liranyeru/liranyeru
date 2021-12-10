@@ -3,7 +3,7 @@
 [![Website](https://img.shields.io/website?label=liranyeru.com&style=for-the-badge&url=https%3A%2F%2Fliranyeru.com)](https://liranyeru.com/)
 [![Twitter Follow](https://img.shields.io/twitter/follow/YeruSkrt?color=1DA1F2&logo=twitter&style=for-the-badge)](https://twitter.com/intent/follow?original_referer=https%3A%2F%2Fgithub.com%2Fliranyeru&screen_name=YeruSkrt)
 
-## I'm a Student and Developer!
+## Ofir Nahum is gay!
 
 - ☃️ 16 years old
 - 🌎 Live in Israel
