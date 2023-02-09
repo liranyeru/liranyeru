@@ -5,7 +5,7 @@
 
 ## Ofir Nahum is gay!
 
-- ☃️ 16 years old
+- ☃️ 17 years old
 - 🌎 Live in Israel
 
 ### Connect with me:
